@@ -4,7 +4,7 @@ Privacy Policy
 .
 Introduction
 
-Our privacy policy will help you understand what information we collect at DhakaNow, how DhakaNow uses it,
+Our privacy policy will help you understand what information we collect at DN, how DN uses it,
 .
 .
 
